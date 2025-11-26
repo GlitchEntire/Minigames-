@@ -1,2 +1,2 @@
 # Minigames-
-yall
+All MiniGames at miniblox.io 
